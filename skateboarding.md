@@ -29,7 +29,7 @@
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/x6AQD9juq3w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>  
 
-Из современных пацанов мне лично нравится канадец Энди Андерсон. Он относится к катанию как к способу взаимодействия с городской средой, в его роликах на ютубе много изотерики и философии, но между этим всем он показыает трюки, которые больше никто в мире не делает. Еще он всегда катается в шлеме.  
+Из современных пацанов мне лично нравится канадец Энди Андерсон. Он относится к катанию как к способу взаимодействия с городской средой, в его роликах на ютубе много эзотерики и философии, но между этим всем он показыает трюки, которые больше никто в мире не делает. Еще он всегда катается в шлеме.  
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gg1ZMwAAcEg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>  
 
