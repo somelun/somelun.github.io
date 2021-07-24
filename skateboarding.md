@@ -94,7 +94,7 @@
 
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">I recently made a 720 and it was a battle. The last one I made before this was over three years ago, and it’s much harder now all things considered: recently dislocated fingers hinder my grab, my spin is slower so I need to go higher for full rotation and... <br>I’m really old. <a href="https://t.co/u8pbwRhS9j">pic.twitter.com/u8pbwRhS9j</a></p>&mdash; Tony Hawk (@tonyhawk) <a href="https://twitter.com/tonyhawk/status/1354305117982400514?ref_src=twsrc%5Etfw">January 27, 2021</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-Я не нашел нигде у меня такого размера рампу, только очкнь маленькие, но я и на них разбиваюсь всегда очень сильно. Рамка это как качаться на качелях, нужно знать, как менять центр тяжести при спуске и при подъеме, но очень нужна защита.  
+Я не нашел нигде у меня такого размера рампу, только очeнь маленькие, но я и на них разбиваюсь всегда очень сильно. Рампа это как качаться на качелях, нужно знать, как менять центр тяжести при спуске и при подъеме, но очень нужна защита.  
 
 ### Мега рампа
 
